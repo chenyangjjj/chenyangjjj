@@ -1,5 +1,12 @@
 ### Hi there 👋
 
+I am 3-rd year master student at UESTC, one month left to graduate. Interning in Shenzhen bay labortory.
+
+Fucking my master supervisor, Fucking Myself. Fucking research.
+
+I wish my life will be in order and keep moving forward. But opposite, I am trapped by myself, Maybe I will be a dead man in one month or not.
+
+
 <!--
 **chenyangjjj/chenyangjjj** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
