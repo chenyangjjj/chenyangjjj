@@ -2,7 +2,7 @@
 
 I am 3-rd year master student at UESTC, one month left to graduate. Interning in Shenzhen bay labortory.
 
-Fucking Myself. Fucking research. Fucking damn voice in my brain. Fucking my desire rising from the brain, I am not able to handle it. Finally China, Fucking earth.
+Fucking Myself. Fucking research. Fucking damn voice in my brain. Fucking my desire rising from the brain, I am not able to handle it. 
 
 I wish my life will be in order and keep moving forward. But opposite, I am trapped by myself, Maybe I will be a dead man in one month, or not.
 
